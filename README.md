@@ -1,0 +1,1 @@
+# 10yen.github.io
